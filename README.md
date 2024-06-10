@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ChipVR11
-- 👀 I’m interested in ... viruses
+- 👀 I’m interested in ... operating systems
 - 🌱 I’m currently learning ... c#
-- 💞️ I’m looking to collaborate on ... viruses
+- 💞️ I’m looking to collaborate on ... nothing go fuck yourself
 - 📫 How to reach me ... no
 - 😄 Pronouns: ... fuck/you
 - ⚡ Fun fact: ... i hate skidders
